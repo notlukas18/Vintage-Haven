@@ -1,4 +1,4 @@
-# 🏺 Vintage Haven
+# 🧸 Vintage Haven
 
 Welcome to **Vintage Haven**! 🎉 Your go-to online marketplace for unique, vintage treasures and handmade creations. 
 
